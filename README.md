@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @FlyisGaming
 - I am a small scale Youtuber and streamer.
 - I care about my viewers and I love playing games
-- if you want to contact me, email me at Ytdash881@outlook.com
+- if you want to contact me, email me at FlyisGamingBusiness@outlook.com
 
 
 <!---
